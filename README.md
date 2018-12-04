@@ -1,6 +1,7 @@
 # Questions-on-Writing
 
 What are my writing habits?
+
 In general I would say that my writing habits lean more on the side of playful.
 I like to ask questions in my documents such as "So what odes this mean" or 'Where do we go from here?" 
 These questions are not neccesary; however, it is difficult for me to avoid using them. 
